@@ -1,1 +1,1 @@
-very good
+Good is good
